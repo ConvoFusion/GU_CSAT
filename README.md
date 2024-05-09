@@ -1,4 +1,4 @@
-SYLLABUS FOR GU_CSAT and ANY OTHER ENTARNCE TESTS:
+SYLLABUS FOR GU_CSAT and OR OTHER ENTARNCE TESTS:
 --------------------------------------------------------------------------------------------------------------
 #1] MATHEMATICS:
 
